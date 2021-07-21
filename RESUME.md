@@ -1,7 +1,8 @@
 # Abigail Hernandez
 ## I am a full time student who writes screenplays and produces short films as hobbies.
 
-![Profile image of Abigail Hernandez](images/File_000 (1).jpeg)
+![Photo of Abigail Hernandez in front of green leaves](https://user-images.githubusercontent.com/87663545/126434664-2f61fc04-79e9-4847-afa1-f527c7da5cad.jpeg)
+
 
 
 ## Skills
