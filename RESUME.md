@@ -16,7 +16,7 @@
 ## Experience
 |Employer|Job Description|
 | ------ | ------------- |
-|Hollister Co.| Brand Representative: Responsibilities included customer services, maintaining displays, folding, register work, inventory, cleaning store, and awareness of business objectives and projections|
+|Hollister Co.|	Brand Ambassador: Responsibilities included customer service, maintaining displays, folding, register work, inventory, cleaning the store, and staying aware of business objectives and projections.|
 |Seedlings Media Startup| Brand Ambassador: Participant in the inaugural batch of Campus Ambassadors, promoted the brand and eco-friendly email newsletter at UC Berkeley.|
 |Delta Kappa Alpha Professional Cinematic Fraternity|Co-Production Chair: Allocate grants to members in order to fund passion projects. Serves and credited as the producer of any DKA productions.|
 |Delta Kappa Alpha Professional Cinematic Fraternity|Co-Social Chair: Plans parties and other social events for the entire chapter.|
